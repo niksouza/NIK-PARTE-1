@@ -1,0 +1,1 @@
+# NIK-PARTE-1
